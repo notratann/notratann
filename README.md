@@ -1,4 +1,4 @@
-Ratanjeet Singh Randhawa
+Ratanjeet Singh
 
 BCA Graduate | Networking & IT Infrastructure | Cloud & Cybersecurity
 
